@@ -1,2 +1,2 @@
 # Indiscriminate_A
-Student: Indiscriminate A
+Student: Nescoromnaya A
